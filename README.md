@@ -1,0 +1,1 @@
+# The-operatos-trading-jounral-
